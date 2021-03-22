@@ -11,7 +11,7 @@ author:
 
 <p class="font-extralight italic text-sm"> N.B.: J'ai écrit cet article, il y a maintenant plus d'un an et entre temps, ma situation à connu quelques rebonds mais j'ai décidé de le publier quand même car j'en suis fière et je le trouve encore pertinent.</p>
 
-Bon déjà, le titre est un à la fois vrai et à la fois faux. Techniquement, je suis une chômeuse mais en réalité je travaille beaucoup, c'est tout simplement que je ne tire pas encore de revenus de mon activité.
+Bon déjà, le titre est à la fois vrai et à la fois faux. Techniquement, je suis une chômeuse mais en réalité je travaille beaucoup, c'est tout simplement que je ne tire pas encore de revenus de mon activité.
 
 D'aussi loin que je me souvienne, j'ai baigné dans cette culture, très française, qui veut que les demandeurs d'emploi soient des fainéants vivants aux crochets de la société. C'est très souvent ce que l'on entend n'est-ce pas ? Tu l'as certainement déjà même pensé voire même dit.
 
